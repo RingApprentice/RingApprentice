@@ -1,1 +1,1 @@
-![image alt](https://github.com/RingApprentice/RingApprentice/blob/613d393bf2159153f6a5af9fc9f9ce8ebee82414/Screen%20Shot%202026-04-24%20at%207.23.05%20PM.png)
+![image alt](https://github.com/RingApprentice/RingApprentice/blob/b7b4d4d30a29e2ebad87fd1eb8a8eb89594919cf/Screen%20Shot%202026-04-24%20at%207.25.57%20PM.png)
