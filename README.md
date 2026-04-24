@@ -1,4 +1,4 @@
-![image alt](https://github.com/RingApprentice/README/blob/42dbc335d0879c1556bf82266a08c50f9b100aa1/Screen%20Shot%202026-04-24%20at%206.00.33%20PM.png)
+![image alt](https://github.com/RingApprentice/RingApprentice/blob/fb0ba13eb338c7b004d3657c91e8d40a8594efca/Screen%20Shot%202026-04-24%20at%206.00.33%20PM.png)
 
 <!--
 **RingApprentice/RingApprentice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
