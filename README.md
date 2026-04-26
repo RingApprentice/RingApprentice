@@ -2,8 +2,8 @@
 
 ![image alt](https://github.com/RingApprentice/RingApprentice/blob/7856e6e7d71eae423bc8139cabc733f1288c0fb1/Screen%20Shot%202026-04-24%20at%207.28.21%20PM.png)
 
-hello! im binah, or u can call me shana { mainly mutual friends or close friends call me shana . . . }                    i don't like being called anything lse unless we are friends. 
-i do like talking but i will be akward at first if we are not close, but it will change over time !!
+hello! im binah, or u can call me shana { mainly mutual friends or close friends call me shana . . . }                    i don't like being called anything else unless we are friends. 
+u may int !!! but im very shy . . . i do like talking but i will be akward at first if we are not close, but it will change over time !!
 
 my current fixation are project moon (limbus & ruina), crk, my other interests are rainworld, phighting, and others.
 
